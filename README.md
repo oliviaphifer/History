@@ -1,4 +1,3 @@
-
 <h2 id="History">History</h2>
 <h3 id="continental-africa">Continental Africa</h3>
 <div>Historically, many cultures in continental Africa developed hairstyles that defined status, or identity, in regards to age, ethnicity, wealth, social rank, marital status, religion, fertility, adulthood, and death. Hair was carefully groomed by those who understood the aesthetic standard, as the social implications of hair grooming were a significant part of community life. Dense, thick, clean, and neatly groomed hair was something highly admired and sought after. Hair groomers possessed unique styling skills, allowing them to create a variety of designs that met the local cultural standards. Hair was usually dressed according to local culture.</div><br>
