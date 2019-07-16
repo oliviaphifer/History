@@ -89,4 +89,4 @@ Published in 2016, the article entitled, African American Personal Presentation:
 
 <h3 id="United States">United States </h3>
 <p>During the 19th century, throughout the West Indies, the teachings of Jamaican political leader Marcus Garvey encouraged an active rejection of European standards of beauty. The resulting Rastafari movement of the 20th century has maintained that the growth of freeform dreadlocks is related to spiritual enlightenment, largely informed by the Biblical Nazirite oath. The Rastafari movement has been so influential in the visibility and subsequent popularity of dreadlocks, throughout the Caribbean and in the global African diaspora, that the term "rasta" has become synonymous with a dreadlocked individual. Today, dreadlocks are common among Afro-Caribbeans and Afro-Latin Americans.</p>
-<a href="#main">Back to top</a><br><br >
+<a href="https://oliviaphifer.github.io/Afro-textured-hair-Project/">Back to Main Page</a><br><br >
